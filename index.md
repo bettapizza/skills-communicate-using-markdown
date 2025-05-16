@@ -9,6 +9,7 @@ This exercise has me going some of the same basic the previous post had me testi
 Guess what skill they are highlighting in this post?
 
 ![Meme of Ace](https://upload.wikimedia.org/wikipedia/en/9/9f/AceVenturaFilm.PNG)
+
 ![Ace walking](https://i.makeagif.com/media/11-22-2023/flC71V.gif)
 
 I am a big Jim Carrey fan, so I'll probably use more in future exercises 
